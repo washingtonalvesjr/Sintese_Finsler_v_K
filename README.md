@@ -1,0 +1,1 @@
+# S-ntese_Finsler_v_K
